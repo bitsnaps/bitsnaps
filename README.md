@@ -1,5 +1,5 @@
 ### About
 
-I'm Ibrahim H. from Algiers/Algeria, currently working CTO & Co-Founder of CorpoSense, we're working on different projects: ERP, Data Science, Blockchain...
+I'm Ibrahim from North Africa, currently focusing on: AI, Data and tech for business in general...
 
 - 📫 How to reach me: bitsnaps(a)yahoo.com
